@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy bloodmaniac
+# 👋 ¡Hola! Soy M4N14CK
 
 🎓 Soy estudiante de Ingeniería de Sistemas, entusiasta del aprendizaje continuo y apasionado por la tecnología.
 
